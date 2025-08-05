@@ -66,4 +66,4 @@ This dashboard enables supermarket managers and stakeholders to:
 
 ## 📬 Contact
 
-Feel free to connect on 
+Feel free to connect on Linkedin://www.linkedin.com/in/nandini-naik0019/
